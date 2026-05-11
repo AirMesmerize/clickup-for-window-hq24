@@ -1,4 +1,4 @@
-
+Enhance ClickUp for Windows with exclusive ClickUp for Windows Automation | voice-input + subtasks, the #1 automation. Includes voice-input and subtasks for a smoother and more
 
 
 
